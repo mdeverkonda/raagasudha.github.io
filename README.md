@@ -1,2 +1,2 @@
 # raagasuha.github.io
-RaagaShua a music school
+RaagaSudha a music school
